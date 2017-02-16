@@ -28,8 +28,8 @@ Presumably protesters were physically there and far easier to identify and disru
 Snopes debunked the status soon as it went viral--but few saw it, and by then it was too late. 
 In the age of the internet, a few whispers between friends becomes a deafening shout. 
 
-  Trust and reputation still mater for the legacy institutions...but with new upstarts and increasing noise,
-they're more and more difficult to identify More frighteningly, there's a groing contingent of people
+  Trust and reputation still matter for the legacy institutions...but with new upstarts and increasing noise,
+they're more and more difficult to identify. More frighteningly, there's a groing contingent of people
 who don't buy into trustworthy, reputable source simply because they're the establishment, part of 
 (what is percieved as) carefully a woven web of conspiracy and intrique that crosses over politics and 
 big business all the way to the media.
